@@ -36,7 +36,6 @@ I'll be available for contract and consultancy work around the half of 2018.
 [(+31) 6 15 03 15 20](tel:+31615031520)<br/>
 [marc@jajava.com](mailto:marc@jajava.com)<br/>
 [@marcvdwurff](https://twitter.com/marcvdwurff)<br/>
-KvK 30285794<br/>
-VAT NL173241062B01<br/>
+Chamber of commerce 30285794<br/>
 [Wilnis](https://www.google.nl/maps/place/Wilnis), The Netherlands<br/>
 <br/>
